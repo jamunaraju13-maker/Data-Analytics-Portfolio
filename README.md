@@ -38,4 +38,4 @@ I am an aspiring Data Analyst with 3+ years of Banking Operations experience and
 
 📍 Chennai, Tamil Nadu, India
 
-🔗 LinkedIn: *(Add your LinkedIn profile link here)*
+🔗 LinkedIn: https://www.linkedin.com/in/jamunarani-r-88231512a/
